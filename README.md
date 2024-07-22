@@ -6,6 +6,6 @@ Idea For Discord Server 1 :- I Want To Suggest Game Nights On Every Saturday Or 
 
 Here Are Some Of The Games That Can Be Played On Game Nights
 
-![Screenshot 2024-07-22 103108](Https://Github.Com/User-Attachments/Assets/5405361d-6b96-49fa-B57f-B6ba3c060abd)
+![Screenshot 2024-07-22 103108](https://github.com/user-attachments/assets/b1b11b02-29bd-4dd8-90e8-a1907be7564d)
 
 Idea For Discord Server 2 :- Every Quiz Should Have One More Winner Other Than The Predefined Number Of Winners. And This Extra Slot Should Go To A Lucky Winner Winning About 500 To 1000 Stack Coins. This Will Motivate More Users To Attend Quizzes.
